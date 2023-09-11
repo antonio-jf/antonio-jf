@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **antonio.juanfdez@yahoo.com**
 
-- 📄 You can look at resume here [https://www.dropbox.com/scl/fi/y1hfnzah085khsx8cn62v/CV_2023_v1-3.pdf?rlkey=xzj721k8by2i93yhj6uy5qmc0&dl=0](https://www.dropbox.com/scl/fi/y1hfnzah085khsx8cn62v/CV_2023_v1-3.pdf?rlkey=xzj721k8by2i93yhj6uy5qmc0&dl=0)
+- 📄 You can look at resume [here](https://www.dropbox.com/scl/fi/y1hfnzah085khsx8cn62v/CV_2023_v1-3.pdf?rlkey=xzj721k8by2i93yhj6uy5qmc0&dl=0)
 
 - ⚡ Fun fact **I love sports and learning new languages!**
 
