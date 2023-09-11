@@ -1,4 +1,4 @@
-[![MasterHead](362527.jpg)]
+![MasterHead](362527.jpg)
 <h1 align="center">Hello, Welcome to my Github profile 👋, my name is Antonio</h1>
 <h3 align="center">Math enthusiast with interests in Machine Learning, Analytics and Technology</h3>
 
